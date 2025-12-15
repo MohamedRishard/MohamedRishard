@@ -39,8 +39,8 @@ I love exploring data, finding insights, and turning them into meaningful storie
 ---
 
 ## 📫 Connect With Me
-**LinkedIn:** [www.linkedin.com/in/mohamed-rishard-743784253](https://www.linkedin.com/in/mohamed-rishard-11-)
-**Email:** mohamedrishard11@gmail.com
+**LinkedIn:** [www.linkedin.com/in/mohamed-rishard-11-](https://www.linkedin.com/in/mohamed-rishard-11-)
+**Email:** [mohamedrishard11@gmail.com](mohamedrishard11@gmail.com)
 
 ---
 
